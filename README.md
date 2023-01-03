@@ -1,4 +1,4 @@
-# L1-CDM-SYS-ID-7060-GIve-Away
+# L1-CDM-SYS-ID-7060-Give-Away
 ## Contact
 
 *Wvleaks <wvleaks@proton.me> for Updated version
